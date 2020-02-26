@@ -1,2 +1,2 @@
 # Data-Analyst
-Indonesia elehan
+HASILNYA INDONESIA ELEHAAAAAN!!!
