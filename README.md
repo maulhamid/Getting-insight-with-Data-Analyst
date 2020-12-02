@@ -1,2 +1,1 @@
 # Data-Analyst
-HASILNYA INDONESIA ELEHAAAAAN!!!
